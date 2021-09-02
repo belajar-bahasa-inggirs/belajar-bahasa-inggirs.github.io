@@ -1,1 +1,1 @@
-# belajar-bahasa-inggirs.github.io
+# belajar-bahasa-inggris.github.io
